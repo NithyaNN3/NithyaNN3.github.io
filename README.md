@@ -15,4 +15,4 @@ When I'm not busy with coursework, I spend my time reading (currently - Smoke an
 
 
 
-Portfolio built with the help of [link](https://www.youtube.com/watch?v=ldwlOzRvYOU)
+Portfolio being built with the help of [link](https://www.youtube.com/watch?v=ldwlOzRvYOU)
