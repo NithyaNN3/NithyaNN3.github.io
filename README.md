@@ -9,7 +9,7 @@ When I'm not busy with coursework, I spend my time reading (currently - Smoke an
 
 ## About Me
 - Creative Writing Officer for our college magazine - [RMIT Catalyst](https://www.rusu.rmit.edu.au/catalyst)
-- Committee for Industry Events - Females in RMIT Engineering
+- Treasurer - Females in RMIT Engineering
 - Volunteer at [RSPCA Victoria](https://rspcavic.org/) - a cause that's close to my heart
 - Work as a Waitress/Bartender at a Hotel on the side, can mix a mean Whiskey Sour 🥃
 
