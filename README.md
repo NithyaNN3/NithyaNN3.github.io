@@ -1,6 +1,6 @@
 # Hi, I'm Nithya 👋
 I currently study Master's of Information Technology at RMIT University. 
-When I'm not busy with coursework, I spend my time reading (currently - Smoke and Ashes, and Designing Data-Intensive Applications), leetcoding, writing or occasionally enjoying a good video game. 
+When I'm not busy with coursework, I spend my time reading fiction, learning new things, writing or occasionally - a good video game. 
 
 ## Current Interests 
 - Cybersecurity - [Notes](https://github.com/NithyaNN3/cybersec)
